@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👍 About Me:
 🖥️ Atualmente trabalhando em<br>Design e criação de mídias digitais, desenvolvendo banners, fillers e peças visuais.<br><br>🤝 Buscando colaborar em<br>Projetos relacionados a design, front-end ou identidade visual.<br><br>💡 Buscando ajuda com<br>Aprendizado contínuo em desenvolvimento e práticas modernas de tecnologia.<br><br>🌱 Atualmente aprendendo<br>Sistemas de Informação, com foco em desenvolvimento e fundamentos de TI.<br><br>💬 Pergunte-me sobre<br>Design digital, criação de mídias e minha experiência como 3º Sargento do Exército Brasileiro.<br><br>⚡ Curiosidade<br>Consigo unir a disciplina do meio militar com a criatividade do design — combinação que guia meu trabalho diário.
 
 
